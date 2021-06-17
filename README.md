@@ -4,6 +4,7 @@ Hello, I'm Tanya! I work here at GitHub on the support team. Nice to meet you!
 
 Outside of work I enjoy:
 - Caring for WAY too many plants
+- Gardening
 - Running too many Linux servers at home
 - Baking, especially bread (and feeding my sourdough starter named Tina)
 - Racing my MINI Cooper

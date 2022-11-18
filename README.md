@@ -7,7 +7,7 @@ Outside of work I enjoy:
 - 🍅  Gardening
 - 🐧  Running too many Linux servers at home
 - 🥖  Baking, especially bread (and feeding my sourdough starter named Tina)
-- 🏁  Racing my MINI Cooper
+- 🏁  Autox Racing
 - 🧶  Fiber arts (knit, crochet, spin)
 - 🐝  Beekeeping
 - 🦮  Going on very sloooooow walks with my dog, Louie
